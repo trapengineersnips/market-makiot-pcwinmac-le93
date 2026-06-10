@@ -1,4 +1,4 @@
-# 
+# Exclusivo market making bot ferramentas para Mac OS | Gratuito market making bot ferramentas para PC Windows. Com visualização de dados e API de exchange descentralizada — otimizado para máximo desempenho em cada plataforma.
 
 
 
